@@ -1,1 +1,1 @@
-# seminar-paper-on-the-subject-of-computer-networks-secondary-school---network-cards
+# seminar-paper-on-the-subject-of-computer-networks-high-school---network-cards
